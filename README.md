@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @himanniii20
 - 👀 I’m interested in Programming 
 - 🌱 I’m currently a student at IIT Jammu
-- 💞️ I’m looking to collaborate on some good projects.
+- 💞️ I’m looking to collaborate on some good projects and internships.
 - 📫 You can reach me on Instagram @himanii_20 or LinkedIn https://www.linkedin.com/in/himani-khobragade-627547203
 
 <!---
